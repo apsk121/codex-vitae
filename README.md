@@ -17,12 +17,12 @@ Beliefs
 * Anticipate problems and plan for them.
 * Rehearse.
 * 8 - 8 - 8
+* Read more. Read often.
 * Write more. Write often.
 * Test yourself, push your limits.
 * Smile at strangers.
 * Call mom and dad more often.
 * Meditate.
-* Read more.
 * Inbox zero.
 * Care about your personal values and live them fully. Don't worry about other people's checklists to tell you what good work means to you.
 * Be yourself.
